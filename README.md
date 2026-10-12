@@ -1,5 +1,5 @@
 ## Welcome to my profile!
-### Student at University of Southampton - Cybersecurity
+### MSc Cybersecurity - University of Southampton
 
 - 📫 How to reach me **rohaan2403@gmail.com**
 
