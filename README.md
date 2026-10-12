@@ -1,5 +1,5 @@
 ## Welcome to my profile!
-### Student at OsloMet - Software Engineering
+### Student at University of Southampton - Cybersecurity
 
 - 📫 How to reach me **rohaan2403@gmail.com**
 
